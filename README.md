@@ -1,4 +1,4 @@
-![Airbnb Clone Script](https://i.postimg.cc/WbpcwxSn/airfinch-1.png)
+![Airbnb Clone Script](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjhrClySpEzX4l81wrFsvAjK9SoGAsk7HvFO1kvzTBNOu9GNhdaahlSVyiF22u85NyXPg1ds8hXfc3S5Rlrn5GSXW0ZumfgucfPpz4OYFm6I35XG_AbWjwm1a_5azhQqKVaO_YxBGM-WY19dqiRdjEQG8Nv9IYw3Y2lzA2ytlujW3a37k8BhZwkQ6Ut4pk/w640-h640/airfinch%201.png)
 
 Imagine building a thriving online marketplace connecting travelers with unique rental properties, just like Airbnb!  That's the power you hold with the Appkodes Airbnb Clone script. It's not just software; it's a springboard to launch your own rental business venture.
 
