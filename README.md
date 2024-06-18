@@ -1,6 +1,6 @@
 ![Airbnb Clone Script](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjhrClySpEzX4l81wrFsvAjK9SoGAsk7HvFO1kvzTBNOu9GNhdaahlSVyiF22u85NyXPg1ds8hXfc3S5Rlrn5GSXW0ZumfgucfPpz4OYFm6I35XG_AbWjwm1a_5azhQqKVaO_YxBGM-WY19dqiRdjEQG8Nv9IYw3Y2lzA2ytlujW3a37k8BhZwkQ6Ut4pk/w640-h640/airfinch%201.png)
 
-Imagine building a thriving online marketplace connecting travelers with unique rental properties, just like Airbnb!  That's the power you hold with the Appkodes Airbnb Clone script. It's not just software; it's a springboard to launch your own rental business venture.
+Imagine building a thriving online marketplace connecting travelers with unique rental properties, just like Airbnb!  That's the power you hold with the Appkodes **[Airbnb Clone](https://appkodes.com/airbnb-clone/)** script. It's not just software; it's a springboard to launch your own rental business venture.
 
 This easy-to-use script provides a robust foundation upon which you can build your dream vacation rental platform.  Let's delve into how it empowers you to be an [Airbnb](https://github.com/topics/airbnb-clone) gamechanger:
 
@@ -34,4 +34,4 @@ The Appkodes Airbnb Clone script equips you with the technical muscle, but remem
 * **Exceptional Customer Service:** Provide prompt and helpful customer support to both guests and hosts. This builds trust and encourages users to return to your platform.
 * **Strategic Marketing:** Devise a marketing strategy to get your platform noticed. Utilize social media, content marketing, and targeted advertising to reach your ideal audience.
 
-With the Appkodes **[Airbnb Clone script](https://appkodes.com/airbnb-clone/)** and a well-defined business plan, you have the perfect recipe to launch a thriving vacation rental marketplace.  It's time to turn your vision into reality and become the next big player in the online rental game!
+With the Appkodes **[Airbnb Clone](https://appkodes.com/airbnb-clone/)** Script and a well-defined business plan, you have the perfect recipe to launch a thriving vacation rental marketplace.  It's time to turn your vision into reality and become the next big player in the online rental game!
